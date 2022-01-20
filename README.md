@@ -1,2 +1,0 @@
-# portofolio
-Portofolio_Sedenir
